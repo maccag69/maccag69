@@ -12,4 +12,4 @@
 <img src="https://exceptionalindividuals.com/wp-content/uploads/2021/03/Patrick-Stewart-dyslexia-meme.jpg" width="512px"/>
 
 ---
-[![](https://visitcount.itsvg.in/api?id=maccag69&icon=5&color=8)](https://visitcount.itsvg.in)
+[!](https://visitcount.itsvg.in/api?id=YOUR_ID&color=3)
