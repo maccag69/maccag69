@@ -1,2 +1,2 @@
 
-![DANCING HAMSTAER](https://i.imgur.com/bfkF7h9.mp4)
+![HAPPY DOG](https://i.imgur.com/7aWpK2q.jpg)
